@@ -1,0 +1,6 @@
+- 👋 Hi, I’m ZinksVr
+- 👀 I’m interested in Gorilla Tag
+- 🌱 I’m currently learning How to code
+- 💞️ I’m looking to collaborate on Making websites
+- 📫 How to reach me @Ammonhendrickson12@gmail.com
+- 🎮 Friend me on vr @ ZinksVr
